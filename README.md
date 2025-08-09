@@ -7,3 +7,5 @@ My research into the Trinidad Olive (Neoholothele incei)—beginning with observ
 ![sling](https://www.mymonsters.co.za/wp-content/uploads/2018/10/NEOINCUJ.jpg)
 
 ![female](https://www.mymonsters.co.za/wp-content/uploads/2018/10/NEOINCMF.jpg)
+
+credit: Danny de Bruyne & [www.spidersworld.eu*](https://www.spidersworld.eu/)
